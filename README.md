@@ -1,0 +1,1 @@
+# glgelgo.soroban_zairyou
